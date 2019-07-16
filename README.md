@@ -29,7 +29,7 @@ banknot jest w DŁONI (kiedy)
 na co dzień gooo wielbisz czujesz i mielisz-(skuty)
 wąchasz zielone
 (jeśli mu się) poświęcisz na STAŁE
-szeleści zgonem potem nic
+szeleści zgonem - potem-niiiic
 
 szatan od mamo-ny 6
 szatan od mamo-ny 6
