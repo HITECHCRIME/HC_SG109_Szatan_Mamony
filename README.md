@@ -24,7 +24,7 @@ już nie ty
 myśl i duch skradzio-ny 6 (skażony)
 (skradziony)
 
-ciało ci PŁONIE, nie czujesz na RAZIE że 
+ciało ci (ciągle) PŁONIE, nie czujesz na RAZIE że 
 banknot jest w DŁONI (kiedy)
 na co dzień gooo wielbisz czujesz i mielisz-(skuty)
 wąchasz zielone
