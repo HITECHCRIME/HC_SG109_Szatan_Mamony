@@ -16,7 +16,30 @@ Description.
 ## Lyrics
 
 ```
+szatan od mamo-ny 6
+szatan od mamo-ny 6
+szatan od mamo-ny 6
+bratasz się z NIM to nie ty 8
+(już nie ty)
 
+myśl i duch skradzio-ny 6 (skażony)
+(skradziony)
+
+ciało ci PŁONIE, nie czujesz na RAZIE że 
+banknot jest w DŁONI (kiedy)
+na co dzień gooo wielbisz czujesz i mielisz-(skuty)
+wąchasz zielone
+(jeśli mu się) poświęcisz na STAŁE
+szeleści zgonem potem nic
+
+szatan od mamo-ny 6
+szatan od mamo-ny 6
+szatan od mamo-ny 6
+bratasz się z nim to nie ty
+
+myśl i duch skradzio-ny 6
+
+(czujesz i mielisz)
 
 ```
 
