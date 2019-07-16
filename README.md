@@ -20,8 +20,7 @@ szatan od mamo-ny 6
 szatan od mamo-ny 6
 szatan od mamo-ny 6
 bratasz się z NIM to nie ty 8
-(już nie ty)
-
+już nie ty
 myśl i duch skradzio-ny 6 (skażony)
 (skradziony)
 
